@@ -29,8 +29,13 @@ __Brigham Young University - Idaho__, Rexburg, ID
 __Math Tutor__, LDSBC
 
 
-`2023-2025`
-__Service Missionary__, South Africa
+`2016-2018`
+__Full-Time Volunteer Representative__, Salt Lake City, Utah
+-	Assisted general public with basic welfare needs
+-	Designed and instituted goal setting and achievement programs for individuals and the public
+-	Prepared and presented lessons
+-	Trained volunteers
+
 
 
 
