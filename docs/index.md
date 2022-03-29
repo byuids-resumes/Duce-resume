@@ -25,9 +25,20 @@ __Brigham Young University - Idaho__, Rexburg, ID
 
 ## Service and Work History
 
-`2025-2027`
-__Math Tutor__, LDSBC
+`August 2020 – December 2021`
+__Carl's Jr. Crew Member__, Coeur d'Alene Idaho
+-	Developed a stronger understanding of basic food safety
+-	Proved competence in listening and following directions resulting in being given additional assignments and responsibilities
 
+`February 2019 – December 2019`
+__Fred Meyers Deli Clerk__, Coeur d'Alene Idaho
+-	Strengthened organization skills by stocking shelves
+-	improved people skills by helping customers find products 
+
+`August 2015 – May 2016`
+__Subway Sandwich Artist__, Page Arizona
+-	Learned listening and communication skills by working with others and helping unhappy customers resulting in additional hours given
+-	Earned preferred shifts by proving dependability and punctuality
 
 `2016-2018`
 __Full-Time Volunteer Representative__, Salt Lake City, Utah
@@ -36,7 +47,9 @@ __Full-Time Volunteer Representative__, Salt Lake City, Utah
 -	Prepared and presented lessons
 -	Trained volunteers
 
-
+## Awards/achievements 
+- Graduated hifh school a year early in an advanced online program
+- earned the Eagle Scout award
 
 
 <!-- ### Footer
