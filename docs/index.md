@@ -48,7 +48,7 @@ __Full-Time Volunteer Representative__, Salt Lake City, Utah
 -	Trained volunteers
 
 ## Awards/achievements 
-- Graduated hifh school a year early in an advanced online program
+- Graduated high school a year early in an advanced online program
 - earned the Eagle Scout award
 
 
